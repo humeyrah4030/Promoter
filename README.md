@@ -1,2 +1,2 @@
 # Promoter
-We promote your business for the hole 
+We promote your business for the hole planet 
